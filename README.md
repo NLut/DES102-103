@@ -1,2 +1,2 @@
 # DES102-103
-2nd semester / 1 st year
+2nd semester / 1st year
